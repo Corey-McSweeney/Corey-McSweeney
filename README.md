@@ -25,5 +25,3 @@
 ---
 
 > _“Learning never exhausts the mind.” – Leonardo da Vinci_
-
-Thanks for visiting my profile! 😊
