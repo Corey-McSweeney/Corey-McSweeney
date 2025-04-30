@@ -19,7 +19,7 @@
 
 ## 📫 Let's Connect
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/corey-mcsweeney) *(Add your link here)*  
+- 💼 [LinkedIn](https://www.linkedin.com/in/corey-mcsweeney)  
 - 📧 Email: coreymcsweeney21@gmail.com
 
 ---
